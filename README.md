@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @fayizz17
 - 👀 I’m interested in learning.
 - 🌱 I’m currently learning B.tech in electronics and communication
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me fayizmuhammed1711@gmail.com
 - 😄 Pronouns: he/him
   
